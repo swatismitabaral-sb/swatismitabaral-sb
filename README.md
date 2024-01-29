@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **swati.sara2001@gmail.com**
 
-- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/188OP2J0K9seuGEyelBFVXcMwVZ6IvAvh/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/drive/folders/1Nx4aKa_k5px-V4fF1KkifB5pr8klVy4B?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
